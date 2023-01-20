@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **diemartinez.dev@gmail.com**
 
-- ⚡ Fun fact **I know I'm funny**
+- ⚡ Fun fact **I know I'm funny :)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
